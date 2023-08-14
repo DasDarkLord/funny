@@ -1,0 +1,2 @@
+# funny
+haha funny repository
